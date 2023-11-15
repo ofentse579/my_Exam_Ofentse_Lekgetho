@@ -1,1 +1,0 @@
-# my_Exam_Ofentse_Lekgetho
